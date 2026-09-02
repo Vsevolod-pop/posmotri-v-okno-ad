@@ -1,1 +1,1 @@
-https://github.com/Vsevolod-pop/posmotri-v-okno-ad`
+https://github.com/Vsevolod-pop/posmotri-v-okno-ad
